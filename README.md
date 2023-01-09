@@ -5,4 +5,5 @@ Verder wil ik mijn English taal verbeteren.
 Wat ik over een jaar hoop te bereiken is om als front-end developer te werken bij een leuk bedrijf 
 Verder heb ik als doel om volgend jaar een junior front end developer te worden 
 
-![Image](https://user-images.githubusercontent.com/90189815/210639924-e05693a5-83f3-47db-9851-8548265223de.jpg)
+
+![WhatsApp Image 2023-01-09 at 7 26 16 PM](https://user-images.githubusercontent.com/90189815/211380989-8b6e91b6-8bfc-4840-8884-4af4c25078e2.jpeg)
